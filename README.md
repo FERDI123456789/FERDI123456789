@@ -1,1 +1,1 @@
-Hi! im probaly board... ¯\_(ツ)_/¯
+Hi! im probaly board... ¯\\_(ツ)_/¯
